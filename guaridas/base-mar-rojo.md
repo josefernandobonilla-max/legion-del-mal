@@ -1,0 +1,1 @@
+Mar Rojo se concentran principalmente en países de la región y potencias extranjeras debido a su enorme valor estratégico para el comercio mundial.
